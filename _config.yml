@@ -1,2 +1,3 @@
 theme: jekyll-theme-architect
 title: Facilitando a busca por arquivos Silhouette!
+load_google_fonts: 'Roboto Slab:400,400italic,700x700italic'
