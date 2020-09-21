@@ -13,3 +13,7 @@
 * [Vários Arquivos](https://drive.google.com/drive/folders/0B0-atkkYk5DeRk5qZjIyZmRycmc)
 * [Masha e o Urso](https://drive.google.com/drive/folders/1pwcCkmkMrM-wGwcXto2d_Rx2ZveS53EA)
 * [Now United](https://drive.google.com/drive/folders/1Ixb0ELG_N8pRTvvfo3hnMztsK0wK8uYx)
+
+### Elementos / Papéis Digitais
+
+* [Frozen II](https://drive.google.com/drive/folders/14GZj-JmFoEV28_CVDjnItUmNpnRK_J3f)
