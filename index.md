@@ -1,5 +1,3 @@
-#### Tudo sobre Silhoeutte!
-
 ### Sites gratuitos para baixar fontes
 
 * [DaFont.net](https://www.dafont.com)
