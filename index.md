@@ -13,6 +13,10 @@
 * [Vários Arquivos](https://drive.google.com/drive/folders/0B0-atkkYk5DeRk5qZjIyZmRycmc)
 * [Masha e o Urso](https://drive.google.com/drive/folders/1pwcCkmkMrM-wGwcXto2d_Rx2ZveS53EA)
 * [Now United](https://drive.google.com/drive/folders/1Ixb0ELG_N8pRTvvfo3hnMztsK0wK8uYx)
+* [Now United]https://drive.google.com/drive/folders/1f5IKZCJeldRxaF3NTbZ6xC8V9P9X81ga)
+* [Pokemon](https://drive.google.com/drive/folders/1vfmQZuaX7LRoVuDmSeRatYw9bGb7u68B)
+* [Pokemon](https://drive.google.com/drive/folders/1aB_lopzDBLRs5QqA56z4M6BFeZ0_Yjpn)
+* [My Little Pony](https://drive.google.com/drive/folders/1kOxeMSBniQCEbe585-z9SakWIO86G3Et)
 
 ### Elementos / Papéis Digitais
 
